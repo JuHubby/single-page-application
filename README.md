@@ -20,6 +20,6 @@ There are quite a few improvements I have in mind. Firstly, I'd like to focus on
 MIT license.
 
 ## Support
-If you have any questions, please don't hesitate to contact me julieth. Also I'm open to your ideas and suggestions, and I'm confident that our combined talents could lead to exciting and innovative results. If you're interested in discussing potential projects or exchanging ideas, please let me know.
+If you have any questions, please don't hesitate to contact me. Get in touch with me via email yuli2546@hotmail.com. Also I'm open to your ideas and suggestions, and I'm confident that our combined talents could lead to exciting and innovative results. If you're interested in discussing potential projects or exchanging ideas, please let me know.
 
 Let's start a conversation and see where our collaboration might take us.
